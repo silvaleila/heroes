@@ -2,7 +2,7 @@
 
 ## Integrantes
 
-- Leila Silva
+- Leila Silva - 28 años- Lanús
 - Ismael Ideme
 - Matias Nuñez
 - Diego Figueredo 
