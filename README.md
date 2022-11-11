@@ -6,4 +6,4 @@
 - Ismael Ideme
 - Matias Nuñez
 - Diego Figueredo 
-- Solange Lopez
+- Solange Lopez - 32 años - Buenos Aires
